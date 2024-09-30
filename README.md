@@ -1,1 +1,1 @@
-J'écrive un peu sur vous-même
+J'écris un peu sur vous-même
